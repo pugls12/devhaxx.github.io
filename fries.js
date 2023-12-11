@@ -1,1 +1,0 @@
-Ur a faggot lol
